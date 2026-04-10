@@ -18,5 +18,5 @@
 ![image](https://files.catbox.moe/j21opy.png) 
 ![image](https://files.catbox.moe/ia7psy.png)
 ![image](https://files.catbox.moe/2gx92d.png)
-![image](https://files.catbox.moe/rr6j1g.png)
+![image](https://files.catbox.moe/n60alj.webp)
 ![gif](https://files.catbox.moe/91ju1s.webp)
