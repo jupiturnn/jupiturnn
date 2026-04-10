@@ -1,6 +1,6 @@
 ## _WELCOME_ ᶻ 𝗓 𐰁 .ᐟ
 
-![image](https://files.catbox.moe/nwjnzd.jpg)
+![image](https://files.catbox.moe/ytosxp.png)
 
 [strawpage](https://parrotx677.straw.page/)
 
