@@ -16,5 +16,5 @@
   
 ![image](https://files.catbox.moe/36cwe9.png) 
 ![image](https://files.catbox.moe/j21opy.png) 
-![image](https://64.media.tumblr.com/c47277ee3ab75bd071349236695aa118/46e71519c35fadaf-70/s100x200/84ee4b212040141ecf195a8eeae9de828f864977.png) 
+![image](https://files.catbox.moe/ia7psy.png)
 ![image](https://files.catbox.moe/2gx92d.png)
