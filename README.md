@@ -4,7 +4,7 @@
 
 ⟡ he/him  
 ⟡ iwc  
-⟡ c+h/b+k please!!  
+⟡ c+h/b+k/int please!!  
 ⟡ no response = afk/offtab  
 
 [strawpage](https://parrotx677.straw.page/) [atabook](https://jupiter.atabook.org/)
