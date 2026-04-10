@@ -1,6 +1,8 @@
 ## _WELCOME_ ᶻ 𝗓 𐰁 .ᐟ
 
 ![image](https://files.catbox.moe/ytosxp.png)
+![divider](https://files.catbox.moe/s6yn54.png)
+
 
 ⟡ he/him  
 ⟡ iwc  
