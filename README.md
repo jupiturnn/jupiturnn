@@ -24,6 +24,6 @@
 ![gif](https://files.catbox.moe/jplsw0.webp)
 ![gif](https://files.catbox.moe/x05id1.webp)
 ![gif](https://files.catbox.moe/pbffbz.webp)
-![gif](https://files.catbox.moe/cn8m3b.webp)
+![gif](https://files.catbox.moe/u7d19y.png)
 ![gif](https://files.catbox.moe/pow5rr.webp)
 ![image](https://files.catbox.moe/v4h8qr.png)  
