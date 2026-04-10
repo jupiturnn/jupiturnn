@@ -21,5 +21,5 @@
 ![image](https://files.catbox.moe/n60alj.webp)
 ![gif](https://files.catbox.moe/91ju1s.webp)
 
-![gif](https://files.catbox.moe/jplsw0.webp)  
+![gif](https://files.catbox.moe/jplsw0.webp)
 ![gif](https://files.catbox.moe/x05id1.webp)
