@@ -1,6 +1,6 @@
 ## _WELCOME_ ᶻ 𝗓 𐰁 .ᐟ
 
-![description]([https://files.catbox.moe/mubkkh.png])
+![description](https://files.catbox.moe/mubkkh.png)
 
 [strawpage](https://parrotx677.straw.page/)
 
