@@ -1,6 +1,6 @@
 ## _WELCOME_ ᶻ 𝗓 𐰁 .ᐟ
 
-![image](https://files.catbox.moe/ytosxp.png)
+![image](https://files.catbox.moe/35vq8a.png)
 ![divider](https://files.catbox.moe/s6yn54.png)
 
 ***looking for a utau/ut (rp) group preferably on discord 👀***
