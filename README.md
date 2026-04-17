@@ -4,7 +4,7 @@
 ![divider](https://files.catbox.moe/s6yn54.png)
 
 
-⟡ he/him`#f2e3c9`
+⟡ he/him  
 ⟡ iwc  
 ⟡ c+h/b+k/int (please)  
 ⟡ no response = afk/offtab  
