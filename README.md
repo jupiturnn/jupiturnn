@@ -10,9 +10,9 @@
 ⟡ c+h/b+k/int (please)  
 ⟡ no response = afk/offtab  
 
-⟡ main interests rn :
-utau/underverse/undertale, object shows, solarballs,  
-invincible, the boys, dandy's world!!
+⟡ interests rn :
+__utau__, __DELTARUNE__, object shows, solarballs,  
+invincible, the boys, dandy's world, mc args, fnaf!!
 
 [strawpage](https://parrotx677.straw.page/) [atabook](https://jupiter.atabook.org/) [prns.page](https://en.pronouns.page/@jupiturnn)
 
